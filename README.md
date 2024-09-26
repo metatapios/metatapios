@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with nice people. A-holes or arrogant drama queens, please, stay away: I have a limited lifespan/patience/endurance;
 - 📫 How to reach me: email mostly! Even comments (but I rarely look)
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I won a Pochita plushie trying for the first time EVER in my life the crane game :-D 
+- ⚡ Fun fact: I won a plushie of Pochita in Tokyo-Shibuya trying for the first time in my life the crane game :-D 
 
 <!---
 metatapios/metatapios is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
